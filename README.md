@@ -18,5 +18,6 @@ Made with ❤️ by **NTKhang** & customized for extended use.
 - 🎀 deploy The bot on `Render.com` suggested
 
 🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩
+ 
  ░ ▂ン㔔⌥╈▣▰▰━───╼🙍
        SM MUKUL BOSS
