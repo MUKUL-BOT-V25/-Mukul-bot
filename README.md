@@ -1,4 +1,5 @@
-# 🐐 Goat Bot v2
+# MUKUL-BOT-V60
+🐐 Goat Bot v2
 
 A **Messenger Bot** built using **Node.js** that runs on your personal Facebook account.  
 Made with ❤️ by **NTKhang** & customized for extended use.
@@ -15,3 +16,7 @@ Made with ❤️ by **NTKhang** & customized for extended use.
 - 🌐 Multi-language support
 - 🙂 And Add cookies on `Account.txt`
 - 🎀 deploy The bot on `Render.com` suggested
+
+🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩
+ ░ ▂ン㔔⌥╈▣▰▰━───╼🙍
+       SM MUKUL BOSS
