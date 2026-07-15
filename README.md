@@ -23,10 +23,9 @@ Made with ❤️ by **NTKhang** & customized for extended use.
        SM MUKUL BOSS
 
             🤖
-........ MUKUL........
+     🤖🇧🇩OPARKOR🇧🇩🤖
 
         ...🤖BOT🤖...
      🤖 FACEBOOK BOT🤖
-     
-🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩     
+   🇧🇩 MADY BY BANGLADESH 🇧🇩     
   
