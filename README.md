@@ -19,7 +19,7 @@ Made with ❤️ by **NTKhang** & customized for extended use.
 
             🇧🇩
  
- ░ ▂ン㔔⌥╈▣▰▰━───╼🙍
+  ▂ン㔔⌥╈▣▰▰━───╼🙍
        SM MUKUL BOSS
 
             🤖
