@@ -24,9 +24,8 @@ Made with ❤️ by **NTKhang** & customized for extended use.
 
             🤖
 
-   ........problem........
-      .......BOT......
-      🤖 FACEBOOK ID🤖
-      https://www.facebook.com/profile.php?id=61591438445216
-
-  🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩    
+   ........ MUKUL........
+        ...🤖BOT🤖...
+     🤖 FACEBOOK BOT🤖
+🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩     
+  
