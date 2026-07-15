@@ -20,12 +20,13 @@ Made with ❤️ by **NTKhang** & customized for extended use.
             🇧🇩
  
   ▂ン㔔⌥╈▣▰▰━───╼🙍
-       SM MUKUL BOSS
+ SM MUKUL BOSS
 
             🤖
      🤖🇧🇩OPARKOR🇧🇩🤖
 
         ...🤖BOT🤖...
-     🤖 FACEBOOK BOT🤖
+       🤖 FACEBOOK BOT🤖
+  
    🇧🇩 MADY BY BANGLADESH 🇧🇩     
   
