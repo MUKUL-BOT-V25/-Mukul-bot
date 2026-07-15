@@ -17,7 +17,16 @@ Made with ❤️ by **NTKhang** & customized for extended use.
 - 🙂 And Add cookies on `Account.txt`
 - 🎀 deploy The bot on `Render.com` suggested
 
-🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩
+            🇧🇩
  
  ░ ▂ン㔔⌥╈▣▰▰━───╼🙍
        SM MUKUL BOSS
+
+            🤖
+
+   ........problem........
+      .......BOT......
+      🤖 FACEBOOK ID🤖
+      https://www.facebook.com/profile.php?id=61591438445216
+
+  🇧🇩MUKUL-BOT MADY BY BANGLADESH 🇧🇩    
