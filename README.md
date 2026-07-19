@@ -4,7 +4,9 @@
 A **Messenger Bot** built using **Node.js** that runs on your personal Facebook account.  
 Made with ❤️ by **NTKhang** & customized for extended use.
 
----
+<p align="center">
+  <img src="https://i.imgur.com/w6ZA3hR.jpeg" https="400">
+</p>
 
 ## ✨ Features
 
